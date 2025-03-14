@@ -1,1 +1,0 @@
-# quickgo-privacy-policy
